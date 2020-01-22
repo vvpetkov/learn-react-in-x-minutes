@@ -1,4 +1,4 @@
-# My repetition 💩👨🏼‍💻 for this YouTube 🚀 [corse](https://www.youtube.com/watch?v=hQAHSlTtcmY&t=1367s)  
+# My repetition 👨🏼‍💻 for this YouTube 🚀 [course](https://www.youtube.com/watch?v=hQAHSlTtcmY&t=1367s)  
 
 
 
